@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BouncyFallGuy
 - 👀 I’m interested in Gaming and Coding Bots!
-- 🌱 I’m currently learning nothing. I just use other's codes.
+- 🌱 I’m currently learning how to play Fall Guys :)
 - 📫 Discord: Bouncy Fall Guy#8680
 
 <!---
